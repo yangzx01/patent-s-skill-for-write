@@ -1,0 +1,1 @@
+# patent-s-skill-for-write
